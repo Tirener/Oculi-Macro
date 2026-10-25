@@ -1,2 +1,2 @@
 # Oculi-Macro
-A macro for various tasks for Rogue Lineage
+Join House Oculi
